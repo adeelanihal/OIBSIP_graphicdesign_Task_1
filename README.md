@@ -8,6 +8,9 @@ Includes key highlights: UNESCO site, built by Shah Jahan, best visiting months,
 
 Designed for informative and visual appeal
 Design Tool: Canva
+
+
+
 poster 2: 
 Design Tool: Canva
 🎯 Purpose of This Guide:
@@ -16,5 +19,8 @@ To act as a daily reminder and visual checklist for anyone striving for personal
 
 Print it, pin it, and live by it!
 
-
+poster 3 :
+little bit of coffee is must !!!
+so a coffee flyer for shoppp
+tool used: canva
 
